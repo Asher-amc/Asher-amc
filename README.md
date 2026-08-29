@@ -12,6 +12,7 @@
                                         I'm Latina..
                                      I love cuddling 
                                    I luv calling with friends 
+                                 I'm sensitive with some things 
                               Im rough love so try to understand me...
 
                                         Famdons 😼
